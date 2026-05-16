@@ -1,4 +1,4 @@
-# 
+# advanced Vegas Pro for PC | Vegas Pro for Windows Effect | batch-processing + green-screen-removal offers the most advanced Vegas Pro for PC | Vegas Pro for Windows effect, with
 
 
 
